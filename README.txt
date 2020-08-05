@@ -1,4 +1,4 @@
-# Meowthy Website
+↬ { ᴍᴇᴏᴡᴛʜʏ ᴡᴇʙꜱɪᴛᴇ } ↫
 
 Instagram: @meowthycat, @meowthyspams
 Mercari Shop: https://www.mercari.com/u/751139080/
